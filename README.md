@@ -1,5 +1,5 @@
 ## Hi there 👋
-- About me: 18 year old ITC student who recently fell in love with the idea of changing the world with the tap of a key
+- About me: 19 year old ITC student who recently fell in love with the idea of changing the world with the tap of a key
 - Pronouns: He/Him
 - Fun fact: I love cats and would die and let the world burn for my 2 cats
 - And.... idk why you are here reading this.... nothing here yet....
